@@ -1,1 +1,0 @@
-Palmeiras não tem mundial!
